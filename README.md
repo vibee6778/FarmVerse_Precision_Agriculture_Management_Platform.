@@ -1,0 +1,1 @@
+# FarmVerse_Precision_Agriculture_Management_Platform.
